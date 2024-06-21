@@ -9,8 +9,8 @@ I am a Data Analyst/Virtual Assistant.
 - 👯 I’m looking to collaborate with companies on projects to profer solutions to clients problems
 - 🤔 I’m looking for help with individuals that can be of help to me in the Data Analysis journey.
 - 💬 Ask me about anything relating to Data Analysis, Data Entry and Virtual Assistant.
-- 📫 How to reach me: www.linkedin.com/in/
+- 📫 How to reach me: www.linkedin.com/in/uchechi nwakuna
 - 😄 Pronouns: Her
 - ⚡ Fun fact: I am a jovial lady who loves proferring solutions to clients' problems whilst paying attention to every detail.
 -->
-www.linkedin.com/in/
+  
