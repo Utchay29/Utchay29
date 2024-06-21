@@ -12,5 +12,5 @@ I am a Data Analyst/Virtual Assistant.
 - 📫 How to reach me: www.linkedin.com/in/uchechi-nwakuna
 - 😄 Pronouns: Her
 - ⚡ Fun fact: I am a jovial lady who loves proferring solutions to clients' problems whilst paying attention to every detail.
--->
+
   
